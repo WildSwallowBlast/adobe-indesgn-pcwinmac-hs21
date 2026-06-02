@@ -1,4 +1,4 @@
-# 
+# Profissional Adobe InDesign fluxo de trabalho para Mac OS | Código aberto Adobe InDesign fluxo de trabalho para PC Windows. Com grade e guias e nós de materiais — otimizado para máximo desempenho em cada plataforma.
 
 
 
